@@ -4,7 +4,7 @@
 
 
 ## Objective
-
+Cybersecurity student at Utica University looking to become a pen. tester.
 
 
 
